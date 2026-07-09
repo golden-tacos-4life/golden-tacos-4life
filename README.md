@@ -3,7 +3,8 @@ Most Info Is In my Straw Page!
 She / Her , They / Them . 
 Can be called val!
 zol, if ur checkin out my profile,  please be aware that you said many slurs and ive already blocked you many times and still refriended you. im sorry. 
-aaaanyway! I do NOT know how to make read mes bro T_T
+aaaanyway! I do NOT know how to make read mes bro T_T I am fully aware I've been rude + mean and kinda childish sometimes! i deeply apologize! :( 
+I love eunash ❤️ 
 
 <!--
 **golden-tacos-4life/golden-tacos-4life** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
