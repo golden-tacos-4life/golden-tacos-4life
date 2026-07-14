@@ -1,4 +1,4 @@
-## gyaaah hiiiiyaaa my name is skye!! #README!!
+## gyaaah hiiiiyaaa my name is hemi!! #README!!
 Most Info Is In my Straw Page!
 She / Her , They / Them . 
 Can be called val!
@@ -7,6 +7,7 @@ I love eunash ❤️
 
 <!--
 **golden-tacos-4life/golden-tacos-4life** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## I DO NOT GO BY SKYE, THATS MY OC
 
 Here are some ideas to get you started:
 
